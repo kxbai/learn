@@ -1,4 +1,4 @@
-[八股文下载连接](https://link.zhihu.com/?target=https%3A//wwr.lanzoui.com/iVgnFsdco7e)
+[八股文下载连接](https://wwr.lanzoui.com/iVgnFsdco7e)
 ---
 
 - [操作系统](#操作系统)
